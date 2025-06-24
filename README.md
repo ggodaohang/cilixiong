@@ -1,6 +1,7 @@
 <h2>磁力熊官网，纯净的1080P高分电影磁力链分享网站|网页版入口</h2>
 <p>磁力熊是一个集搜索、下载、管理于一体的综合性数字资源探索平台。它通过高效的搜索引擎，帮助用户轻松找到所需的视频、音频、文档等资源，并支持多种文件格式的处理和转换。磁力熊的界面设计简洁明了，操作逻辑清晰，即使是初次使用的用户也能快速上手。此外，磁力熊还注重用户体验，提供批量下载、下载进度显示、资源收藏等实用功能，让用户在享受高效便捷的同时，也能感受到贴心的服务。</p>
 <p><strong>一键访问：</strong><a href="https://cilixiong.litxdh.com" target="_blank"><strong>磁力熊最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://cilisousuodaohang.litxdh.com" target="_blank"><strong>磁力导航网站大全</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p><strong>功能特点</strong></p>
